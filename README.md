@@ -12,5 +12,7 @@ joaovictorsfaria01@gmail.com
 
 @joaovictor
 
-![](https://tenor.com/djygn1f5zIp.gif)
+![image](https://github.com/user-attachments/assets/a690bd50-d615-426e-b37d-d9279bd2686a)
+
+
 
